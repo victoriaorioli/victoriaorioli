@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @victoriaorioli
+- muito dificil isso aqui 
+- coisa doida
+- estudando demais
